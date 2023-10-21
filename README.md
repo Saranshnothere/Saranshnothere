@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Saranshnothere
-- 👀 I’m interested in 
+- 👀 I’m interested in Tech
 - 🌱 I’m currently learning python and religion
 - 📫 How to reach me at discodd @sxrxnshh
 
